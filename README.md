@@ -16,7 +16,7 @@ Stay tuned for our upcoming events and workshops, where you can learn, network, 
 
 ## Contact Us
 
-For any queries or suggestions, feel free to reach out to us at [email](csi.dmce@dmce.ac.in). You can also connect with us on [Instagram](https://www.instagram.com/csidmce/)[LinkedIn](https://in.linkedin.com/company/csi-dmce).
+For any queries or suggestions, feel free to reach out to us at [email](csi.dmce@dmce.ac.in). You can also connect with us on [Instagram](https://www.instagram.com/csidmce/) & [LinkedIn](https://in.linkedin.com/company/csi-dmce).
 
 Thank you for being a part of CSI-DMCE-2024. Together, let's innovate and create a better future through technology!
 
